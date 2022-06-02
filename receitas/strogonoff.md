@@ -40,6 +40,8 @@ O strogonoff é uma receita prática para servir para muitas pessoas justamente 
 
 Agora que você aprendeu como fazer strogonoff de frango, que tal preparar mais receitas deliciosas com esse ingrediente? Aqui no TudoGostoso você encontra outras receitas com frango muito práticas, como o escondidinho, a lasanha de frango com queijo, o salpicão de frango, fricassê, torta de frango, filé de frango à parmegiana, panqueca de frango desfiado e muito mais!
 
+:man_cook:
+
 
 
 
